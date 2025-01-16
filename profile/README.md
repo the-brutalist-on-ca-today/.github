@@ -3,13 +3,13 @@
 𝟶𝟽 𝚖𝚒𝚗𝚞𝚝𝚎𝚜 𝚊𝚐𝚘 — [𝙱𝚕𝚘𝚌𝚔𝚋𝚞𝚜𝚝𝚎𝚛] 𝚆𝚑𝚒𝚕𝚎 𝚜𝚎𝚟𝚎𝚛𝚊𝚕 𝚊𝚟𝚎𝚗𝚞𝚎𝚜 𝚎𝚡𝚒𝚜𝚝 𝚝𝚘 𝚟𝚒𝚎𝚠 𝚝𝚑𝚎 𝚑𝚒𝚐𝚑𝚕𝚢 𝚙𝚛𝚊𝚒𝚜𝚎𝚍 𝚏𝚒𝚕𝚖 𝙵𝚞𝚛𝚒𝚘𝚜𝚊: 𝙰 𝙼𝚊𝚍 𝙼𝚊𝚡 𝚂𝚊𝚐𝚊 𝚘𝚗𝚕𝚒𝚗𝚎 𝚜𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚘𝚏𝚏𝚎𝚛𝚜 𝚊 𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚕𝚎 𝚖𝚎𝚊𝚗𝚜 𝚝𝚘 𝚊𝚌𝚌𝚎𝚜𝚜 𝚒𝚝𝚜 𝚌𝚒𝚗𝚎𝚖𝚊𝚝𝚒𝚌 𝚠𝚘𝚗𝚍𝚎𝚛 𝙵𝚛𝚘𝚖 𝚑𝚎𝚊𝚛𝚝𝚏𝚎𝚕𝚝 𝚜𝚘𝚗𝚐𝚜 𝚝𝚘 𝚋𝚞𝚘𝚢𝚊𝚗𝚝 𝚑𝚞𝚖𝚘𝚛 𝚝𝚑𝚒𝚜 𝚐𝚎𝚗𝚛𝚎-𝚋𝚎𝚗𝚍𝚒𝚗𝚐 𝚠𝚘𝚛𝚔 𝚎𝚡𝚙𝚕𝚘𝚛𝚎𝚜 𝚝𝚑𝚎 𝚙𝚘𝚠𝚎𝚛 𝚘𝚏 𝚏𝚛𝚒𝚎𝚗𝚍𝚜𝚑𝚒𝚙 𝚝𝚘 𝚞𝚙 𝙵𝚞𝚛𝚒𝚘𝚜𝚊: 𝙰 𝙼𝚊𝚍 𝙼𝚊𝚡 𝚂𝚊𝚐𝚊 𝚌𝚘𝚖𝚖𝚞𝚗𝚒𝚝𝚒𝚎𝚜 𝚍𝚞𝚛𝚒𝚗𝚐 𝚝𝚛𝚘𝚞𝚋𝚕𝚒𝚗𝚐 𝚝𝚒𝚖𝚎𝚜 𝙳𝚒𝚛𝚎𝚌𝚝𝚎𝚍 𝚠𝚒𝚝𝚑 𝚗𝚞𝚊𝚗𝚌𝚎𝚍 𝚌𝚘𝚕𝚘𝚛 𝚊𝚗𝚍 𝚟𝚒𝚟𝚊𝚌𝚒𝚘𝚞𝚜 𝚊𝚗𝚒𝚖𝚊𝚝𝚒𝚘𝚗 𝚕𝚒𝚐𝚑𝚝𝚎𝚛 𝚖𝚘𝚖𝚎𝚗𝚝𝚜 𝚊𝚛𝚎 𝚋𝚕𝚎𝚗𝚍𝚎𝚍 𝚜𝚎𝚊𝚖𝚕𝚎𝚜𝚜𝚕𝚢 𝚠𝚒𝚝𝚑 𝚝𝚘𝚞𝚌𝚑𝚒𝚗𝚐 𝚒𝚗𝚝𝚛𝚘𝚜𝚙𝚎𝚌𝚝𝚒𝚘𝚗 𝙲𝚒𝚗𝚎𝚙𝚑𝚒𝚕𝚎𝚜 𝚊𝚗𝚍 𝚌𝚊𝚜𝚞𝚊𝚕 𝚏𝚊𝚗𝚜 𝚊𝚕𝚒𝚔𝚎 𝚠𝚒𝚕𝚕 𝚏𝚒𝚗𝚍 𝚝𝚑𝚎𝚒𝚛 𝚜𝚙𝚒𝚛𝚒𝚝𝚜 𝙵𝚞𝚛𝚒𝚘𝚜𝚊: 𝙰 𝙼𝚊𝚍 𝙼𝚊𝚡 𝚂𝚊𝚐𝚊 𝚎𝚍 𝚋𝚢 𝚝𝚑𝚒𝚜 𝚒𝚗𝚜𝚙𝚒𝚛𝚊𝚝𝚒𝚘𝚗𝚊𝚕 𝚜𝚝𝚘𝚛𝚢 𝚘𝚏 𝚍𝚒𝚟𝚎𝚛𝚜𝚎 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛𝚜 𝚓𝚘𝚒𝚗𝚒𝚗𝚐 𝚒𝚗 𝚜𝚘𝚕𝚒𝚍𝚊𝚛𝚒𝚝𝚢 𝚆𝚑𝚢 𝚗𝚘𝚝 𝚜𝚙𝚎𝚗𝚍 𝚊𝚗 𝚎𝚟𝚎𝚗𝚒𝚗𝚐 𝚒𝚖𝚖𝚎𝚛𝚜𝚎𝚍 𝚒𝚗 𝚝𝚑𝚎 𝚟𝚒𝚋𝚛𝚊𝚗𝚝 𝚠𝚘𝚛𝚕𝚍 𝚘𝚏 𝙵𝚞𝚛𝚒𝚘𝚜𝚊: 𝙰 𝙼𝚊𝚍 𝙼𝚊𝚡 𝚂𝚊𝚐𝚊 ? 𝙳𝚘𝚗'𝚝 𝚖𝚒𝚜𝚜 𝚘𝚞𝚝! #𝙵𝚞𝚛𝚒𝚘𝚜𝚊: 𝙰 𝙼𝚊𝚍 𝙼𝚊𝚡 𝚂𝚊𝚐𝚊 𝙼𝚘𝚟𝚒𝚎
 
 
-### [➤ ►🌍📺📱👉 The Brutalist (2025) Ful𝚕 Mo𝚟ie](https://tinyurl.com/25vace7e)
+### [➤ ►🌍📺📱👉 The Brutalist (2025) Ful𝚕 Mo𝚟ie](https://t.co/8YsNICikIN)
 
 
-### [➤ ►🌍📺📱👉 WaTch The Brutalist (2025) Ful𝚕 Mo𝚟ie Downl𝚘ad](https://tinyurl.com/25vace7e)
+### [➤ ►🌍📺📱👉 WaTch The Brutalist (2025) Ful𝚕 Mo𝚟ie Downl𝚘ad](https://t.co/8YsNICikIN)
 
 
-[![watch_full_movie](https://image.tmdb.org/t/p/original/wQvh32nm9sAua2QtuUrdaOz01Ql.jpg)](https://tinyurl.com/25vace7e)
+[![watch_full_movie](https://image.tmdb.org/t/p/original/b0dyZlvVQml1KgQpJQbA5osr5c8.jpg)](https://t.co/8YsNICikIN)
 
 
 Wondering how to W𝚊tch The Brutalist 𝙾nl𝚒ne? We have all of the details on the Latest English and Hindi Sub Mo𝚟ies, from showtimes to Strea𝚖ing info.
